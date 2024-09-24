@@ -57,5 +57,7 @@ Explore the different trading features, such as Perpetual Trading, Copy Trading,
 Share your referral link with others to earn rewards through the referral system.
 
 # LIVE DEMO
-[Q-BOT Demo](mailto://pankaj.kumar@quantumhive.us)
 
+[Book an appointment](https://calendar.app.google/NsBL8pEtm7ad5Wz5A)
+
+[Email us](mailto://pankaj.kumar@quantumhive.us)
